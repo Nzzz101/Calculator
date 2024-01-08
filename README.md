@@ -1,3 +1,3 @@
 🙋‍♂️✋👋
-Download and install Calcutator for +
+Download and install Calculator for +
 and more 
